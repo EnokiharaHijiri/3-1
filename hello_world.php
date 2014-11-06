@@ -1,0 +1,3 @@
+konnnitiwa!! watasi huredhi !!
+daitai
+
